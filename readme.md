@@ -1,62 +1,65 @@
-# *This could be your chance to change your life. With fluent English, you can earn $10,000 a month. Yes, you heard that right—big money, just by leveraging your English skills. How?*
+# *This could be your chance to change your life. With fluent English, you can earn \$6,000–\$8,000 a month. Yes, you heard that right—big money, just by leveraging your English and technical skills. How?*
 
-Please schedule the meeting via this link.
-**https://calendly.com/raza-1004ali/30min**
+Please schedule the meeting via this link:
+**[https://calendly.com/zamanigabriel34](https://calendly.com/zamanigabriel34)**
 
-# **Unlock High-Paying US Developer Roles Together**  
+# **Unlock High-Paying US Developer Roles Together**
 
-Are you a fluent English speaker? Want to secure high-quality US contracting roles and earn 10k a month while working remotely? Let’s collaborate and make it happen!  
-
-## **The Opportunity**  
-
-We’ll combine our skills and efforts to tap into lucrative US-based developer opportunities using platforms like:  
-- LinkedIn  
-- Indeed  
-- Craigslist  
-- Dice  
-- ZipRecruiter  
-
-Together, we’ll build a winning strategy to break into these roles and create a profitable, long-term partnership.  
+Are you a fluent English speaker? Want to secure high-quality US contracting roles and earn thousands a month while working remotely? Let’s collaborate and make it happen!
 
 ---
 
-## **How It Works**  
+## **How Can We Collaborate?**
 
-### **My Role**:  
-- **Job Search Expert**: I’ll manage the job hunt, handle outreach, and set up meetings with recruiters using a competitive US-based profile.  
-- **Technical Backup**: I’ll provide support during technical interviews to ensure we’re fully prepared.  
+Here’s the step-by-step plan:
 
-### **Your Role**:  
-- **Ace Interviews**: You’ll represent our team in meetings, showcase your technical expertise, and secure the role.  
-- **Deliver Excellence**: Once hired, you’ll join daily standups, contribute as a core team member, and deliver great work.  
+1. **Profile & Setup (My Role)**
 
----
+   * I’ll create and manage **US-based professional profiles**.
+   * I’ll handle **bank details, background checks, and logistics**.
+   * I’ll schedule recruiter calls and job opportunities for us.
 
-## **Why This Collaboration Works**  
+2. **Interviews (Your Role)**
 
-- **Shared Success**: By combining my expertise in navigating the US contracting landscape with your English skills, we’ll create a winning team.  
-- **Guaranteed Support**: I’ll handle the logistics and hire additional developers if needed to lighten your workload.  
-- **Transparent Payments**: Payments are handled professionally through my business, and you’ll be compensated fairly for your contributions.  
+   * You’ll attend interviews based on your **English fluency and technical expertise**.
+   * Each call will be a chance to showcase your skills and move closer to securing a role.
+   * For your time, I’ll pay **\$25/hour for all interview calls** you handle.
 
----
+3. **Getting the First Job**
 
-## **What’s In It For You?**  
+   * With consistency, we can secure a contract within **1–2 months**.
+   * Once you land a role, you’ll earn **at least \$2,000 per job**.
 
-- Earn 10k per month.  
-- Gain access to premium US software development contracting opportunities you might not secure alone.  
-- Focus on your strengths while I handle the behind-the-scenes work.  
-- Build a long-term collaboration with mutual growth potential.  
+4. **Scaling Up**
 
----
-
-## **Ready to Start?**  
-
-Let’s connect and discuss this exciting opportunity in detail! Together, we’ll unlock high-paying roles and create a reliable partnership.  
-
-- **Gmail**: raza.1004ali@gmail.com 
-- **Discord**: raza.1004ali 
-- **Telegram**: @raza1004ali  
+   * After the first success, we’ll target **3–4 contracts in parallel**, similar to how my co-worker currently works.
+   * This means you’ll realistically earn **\$6,000–\$8,000 per month**.
 
 ---
 
-This is your chance to work smarter, not harder, and break into the thriving US developer market. Let’s make it happen!  
+## **Why This Collaboration Works**
+
+* **Shared Success**: I handle the backend—profiles, calls, background checks—while you focus on interviews and delivery.
+* **Proven Model**: Others in my network are already running this approach successfully.
+* **Fair Compensation**: You’ll get **paid per call** before the job starts, and once hired, you’ll share in the bigger earnings.
+
+---
+
+## **What’s In It For You?**
+
+* Earn **\$6k–\$8k monthly** once we scale.
+* Get **\$25/hour** for every interview call you attend.
+* Focus on your strengths while I manage logistics.
+* Access premium US software development contracting roles you might not secure alone.
+* Build a **long-term collaboration** with consistent growth.
+
+---
+
+## **Ready to Start?**
+
+Let’s connect and discuss this exciting opportunity in detail! Together, we’ll unlock high-paying roles and create a reliable partnership.
+
+* **Gmail**: [zamanigabriel34@gmail.com](mailto:zamanigabriel34@gmail.com)
+* **Linkedin**: [https://www.linkedin.com/in/gabriel-zamani-27565434a/](https://www.linkedin.com/in/gabriel-zamani-27565434a/)
+* **Telegram**: @verifdev
+* **Schedule a Meeting**: [https://calendly.com/zamanigabriel34](https://calendly.com/zamanigabriel34)
