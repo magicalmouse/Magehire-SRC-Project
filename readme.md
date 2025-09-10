@@ -1,4 +1,4 @@
-# *This could be your chance to change your life. With fluent English, you can earn \$6,000–\$8,000 a month. Yes, you heard that right—big money, just by leveraging your English and technical skills. How?*
+# *This could be your chance to change your life. Yes, you heard that right—big money, just by leveraging your English and technical skills. How?*
 
 Please schedule the meeting via this link:
 **[https://calendly.com/zamanigabriel34](https://calendly.com/zamanigabriel34)**
