@@ -1,7 +1,4 @@
-# *This could be your chance to change your life. Yes, you heard that right—big money, just by leveraging your English and technical skills. How?*
-
-Please schedule the meeting via this link:
-**[https://calendly.com/zamanigabriel34](https://calendly.com/zamanigabriel34)**
+# *This could be your chance to change your life. How?*
 
 # **Unlock High-Paying US Developer Roles Together**
 
@@ -23,17 +20,21 @@ Here’s the step-by-step plan:
 
    * You’ll attend interviews based on your **English fluency and technical expertise**.
    * Each call will be a chance to showcase your skills and move closer to securing a role.
-   * For your time, I’ll pay **\$20/hour for all interview calls** you handle.
+   * For your time, I’ll pay **per passed interview**:
+
+     * Screening call: **\$20/hour**
+     * Technical call: **\$40/hour**
 
 3. **Getting the First Job**
 
    * With consistency, we can secure a contract within **1–2 months**.
-   * Once you land a role, you’ll earn **at least \$2,000 per job**.
+   * Once you land a role, you’ll earn **\$1,500 per job**.
+   * If you can also handle the development side, you’ll earn **\$3,000 per job**. If not, I’ll hire a developer and you still get **\$1,500 per job**.
 
 4. **Scaling Up**
 
    * After the first success, we’ll target **3–4 contracts in parallel**, similar to how my co-worker currently works.
-   * This means you’ll realistically earn **\$6,000–\$8,000 per month**.
+   * This means you’ll realistically earn **\$4,500–\$12,000 per month**, depending on your involvement in development.
 
 ---
 
@@ -41,13 +42,13 @@ Here’s the step-by-step plan:
 
 * **Shared Success**: I handle the backend—profiles, calls, background checks—while you focus on interviews and delivery.
 * **Proven Model**: Others in my network are already running this approach successfully.
-* **Fair Compensation**: You’ll get **paid per call** before the job starts, and once hired, you’ll share in the bigger earnings.
+* **Fair Compensation**: You get paid per passed interview and per completed job, with extra if you contribute to development.
 
 ---
 
 ## **What’s In It For You?**
 
-* Earn **\$6k–\$8k monthly** once we scale.
+* Earn **\$4.5k–\$12k monthly** once we scale, depending on your role.
 * Focus on your strengths while I manage logistics.
 * Access premium US software development contracting roles you might not secure alone.
 * Build a **long-term collaboration** with consistent growth.
@@ -58,7 +59,7 @@ Here’s the step-by-step plan:
 
 Let’s connect and discuss this exciting opportunity in detail! Together, we’ll unlock high-paying roles and create a reliable partnership.
 
-* **Gmail**: [zamanigabriel34@gmail.com](mailto:zamanigabriel34@gmail.com)
-* **Linkedin**: [https://www.linkedin.com/in/gabriel-zamani-27565434a/](https://www.linkedin.com/in/gabriel-zamani-27565434a/)
+* **Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
 * **Telegram**: @verifdev
-* **Schedule a Meeting**: [https://calendly.com/zamanigabriel34](https://calendly.com/zamanigabriel34)
+
+---
