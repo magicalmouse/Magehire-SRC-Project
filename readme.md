@@ -23,7 +23,7 @@ Here’s the step-by-step plan:
 
    * You’ll attend interviews based on your **English fluency and technical expertise**.
    * Each call will be a chance to showcase your skills and move closer to securing a role.
-   * For your time, I’ll pay **\$25/hour for all interview calls** you handle.
+   * For your time, I’ll pay **\$20/hour for all interview calls** you handle.
 
 3. **Getting the First Job**
 
@@ -48,7 +48,6 @@ Here’s the step-by-step plan:
 ## **What’s In It For You?**
 
 * Earn **\$6k–\$8k monthly** once we scale.
-* Get **\$25/hour** for every interview call you attend.
 * Focus on your strengths while I manage logistics.
 * Access premium US software development contracting roles you might not secure alone.
 * Build a **long-term collaboration** with consistent growth.
