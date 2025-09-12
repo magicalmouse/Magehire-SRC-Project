@@ -1,6 +1,14 @@
-# **Unlock High-Paying US Developer Roles Together**
+---
 
-Are you a fluent English speaker? Want to secure quality US-based contracting roles and work remotely? Let’s collaborate and make it happen!
+# **Unlock High-Paying Developer Roles in the US & Latin America**
+
+Are you a fluent English or Spanish speaker? Want to secure quality contracting roles in the **US, Colombia, Mexico, and across Latin America**—all while working remotely? Let’s collaborate and make it happen!
+
+---
+
+## **About Us**
+
+We are **DreamHigh**, a company based in Asia. Our mission is to connect talented developers with high-quality opportunities in the US and Latin America. With our global reach, we ensure smooth collaboration and reliable results.
 
 ---
 
@@ -8,13 +16,13 @@ Are you a fluent English speaker? Want to secure quality US-based contracting ro
 
 ### **1. Profile & Setup (My Role)**
 
-* I assist with creating and managing **professional US-based profiles**.
+* I assist with creating and managing **professional developer profiles** tailored for US and Latin American markets.
 * I help coordinate logistics such as background checks and scheduling calls with recruiters.
 * I guide you through the initial steps to prepare for interviews.
 
 ### **2. Interviews (Your Role)**
 
-* You attend interviews based on your **technical expertise and English fluency**.
+* You attend interviews based on your **technical expertise and language fluency (English/Spanish)**.
 * Each call is an opportunity to showcase your skills and advance toward securing a role.
 * Compensation for your time is **provided per passed interview**:
 
@@ -32,6 +40,7 @@ Are you a fluent English speaker? Want to secure quality US-based contracting ro
 ### **4. Scaling Up**
 
 * After the first success, we can explore **multiple contracts in parallel**.
+* We have **talented developers** available, so handling **two or more projects at the same time** is no problem.
 * Depending on your involvement, monthly earnings could range from **\$4,500 to \$12,000**.
 
 ---
@@ -40,14 +49,14 @@ Are you a fluent English speaker? Want to secure quality US-based contracting ro
 
 * **Shared Effort**: I manage backend preparation while you focus on interviews and delivery.
 * **Transparent Process**: All payments and contracts are handled professionally.
-* **Proven Approach**: Based on established contracting practices in the US market.
+* **Proven Approach**: Based on established contracting practices in both the US and Latin American markets.
 
 ---
 
 ## **What’s In It For You**
 
 * Competitive pay based on interviews and contract completion.
-* Access to US-based software development contracting roles.
+* Access to developer contracting roles in the **US, Colombia, Mexico, and Latin America**.
 * Focus on your strengths while I handle logistics.
 * Opportunity for long-term collaboration and growth.
 
@@ -57,5 +66,9 @@ Are you a fluent English speaker? Want to secure quality US-based contracting ro
 
 Let’s connect and discuss this opportunity in detail!
 
+* **Company**: DreamHigh (Asia-based)
 * **Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
 * **Telegram**: @verifdev
+* **Schedule a Call**: [Book a 30-min slot here](https://calendly.com/victor-peed-dreamhigh/30min)
+
+---
