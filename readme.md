@@ -38,6 +38,30 @@ To ensure stability and fairness, we offer a **fixed monthly salary**:
 
 This structure allows time for onboarding, training, and workflow alignment before transitioning into full operational responsibilities.
 
+Here’s the **enhanced and professional salary section** with your added details, written clearly and naturally:
+
+---
+
+### **3. Fixed Monthly Salary & Performance-Based Bonus**
+
+To ensure stability during onboarding and reward performance, we offer a **fixed monthly salary plus performance-based bonuses**:
+
+#### **Base Salary (Onboarding & Ongoing)**
+
+* **Month 1 (Trial / Onboarding): $300**
+* **Month 2 (Trial / Onboarding): $300**
+* **From Month 3 onward: $500 per month**
+
+This structure supports onboarding, training, and alignment with workflows before moving into full responsibilities.
+
+#### **Performance Bonus (Per Successful Job Placement)**
+
+* **$1,000 per successfully secured job contract**
+* If you secure **two jobs in one month, you earn $2,000**
+* Bonuses are **paid in addition to the base monthly salary**
+
+This means your **total monthly earnings** can significantly increase based on performance and successful job placements.
+
 ---
 
 ### **4. Growth & Long-Term Opportunity**
