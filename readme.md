@@ -1,61 +1,68 @@
 # **Unlock High-Paying Developer Roles in Latin America**
 
-Are you a fluent English and Spanish speaker? Want to secure quality contracting roles in **Colombia, Mexico, and across Latin America**—all while working remotely? Let’s collaborate and make it happen!
+Are you a fluent **English and Spanish speaker** looking to secure quality remote contracting roles in **Colombia, Mexico, and across Latin America**? Let’s collaborate and make it happen!
 
 ---
 
 ## **About Us**
 
-We are **DreamHigh** company. Our mission is to connect talented developers with high-quality opportunities in Latin America. With our global reach, we ensure smooth collaboration and reliable results.
+We are **DreamHigh**, a global talent solutions company dedicated to connecting skilled developers with high-quality opportunities across Latin America. Our mission is to build long-term partnerships through transparency, efficiency, and reliable results.
 
 ---
 
 ## **How We Collaborate**
 
-### **1. Profile & Setup (My Role)**
+### **1. Profile Setup & Preparation (My Role)**
 
-* I assist with creating and managing **professional developer profiles** tailored for Latin American markets.
-* I help coordinate logistics such as background checks and scheduling calls with recruiters.
-* I guide you through the initial steps to prepare for interviews.
+* Create and manage **professional developer profiles** tailored to the Latin American job market.
+* Coordinate logistics such as **background checks, scheduling interviews, and recruiter communication**.
+* Guide candidates through **interview preparation and onboarding steps**.
 
-### **2. Interviews (Your Role)**
+---
 
-* You attend interviews based on your **technical expertise and language fluency (Spanish)**.
-* Each call is an opportunity to showcase your skills and advance toward securing a role.
-* Compensation for your time is **provided per passed interview**:
+### **2. Interviews & Communication (Your Role)**
 
-  * **Screening call:** $20/hour
-  * **Technical interview:** $40/hour
+* Attend **screening and technical interviews** based on your skills and Spanish fluency.
+* Represent our collaboration professionally in all recruiter and client interactions.
+* Clearly communicate project expectations and technical capabilities.
 
-### **3. Securing Your First Job**
+---
 
-* With consistent effort, we aim to secure a suitable contract within **1–2 months**.
-* Once you land a contract, compensation is **based on your role and contribution**:
+### **3. Fixed Monthly Salary Structure**
 
-  * If you focus on coordination/interview tasks: **$1,000 per contract**
+To ensure stability and fairness, we offer a **fixed monthly salary**:
 
-### **4. Scaling Up**
+* **Month 1 (Trial / Onboarding): $300**
+* **Month 2 (Trial / Onboarding): $300**
+* **From Month 3 onward: $500 per month**
 
-* After the first success, we can explore **multiple contracts in parallel**.
-* We have **talented developers** available, so handling **two or more projects at the same time** is no problem.
-* Depending on your involvement, monthly earnings could range from **$4,500 to $12,000**.
+This structure allows time for onboarding, training, and workflow alignment before transitioning into full operational responsibilities.
+
+---
+
+### **4. Growth & Long-Term Opportunity**
+
+* After onboarding, we aim to scale into **multiple contracts and long-term collaborations**.
+* Work alongside **talented developers** across Latin America.
+* Opportunity for **performance-based bonuses and expanded responsibilities** over time.
 
 ---
 
 ## **Why This Collaboration Works**
 
-* **Shared Effort**: I manage backend preparation while you focus on interviews and delivery.
-* **Transparent Process**: All payments and contracts are handled professionally.
-* **Proven Approach**: Based on established contracting practices in Latin American markets.
+* **Clear Responsibilities** – Well-defined roles and expectations.
+* **Stable Income** – Guaranteed fixed monthly compensation.
+* **Transparent Process** – Professional handling of contracts and payments.
+* **Long-Term Vision** – Focus on sustainable growth and partnerships.
 
 ---
 
 ## **What’s In It For You**
 
-* Competitive pay based on interviews and contract completion.
-* Access to developer contracting roles in **Colombia, Mexico, and Latin America**.
-* Focus on your strengths while I handle logistics.
-* Opportunity for long-term collaboration and growth.
+* Stable and predictable **monthly income**.
+* Exposure to **high-quality international development roles**.
+* Opportunity to grow with a **scaling global team**.
+* Professional development and long-term collaboration.
 
 ---
 
@@ -63,9 +70,7 @@ We are **DreamHigh** company. Our mission is to connect talented developers with
 
 Let’s connect and discuss this opportunity in detail!
 
-* **Company**: DreamHigh
-* **Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
-* **Telegram**: @verifdev
-* **Schedule a Call**: [Book a 30-min slot here](https://calendly.com/victor-peed-dreamhigh/30min)
-
----
+**Company**: DreamHigh
+**Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
+**Telegram**: @verifdev
+**Schedule a Call**: [https://calendly.com/victor-peed-dreamhigh/30min](https://calendly.com/victor-peed-dreamhigh/30min)
