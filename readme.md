@@ -6,7 +6,7 @@ Are you a fluent **English and Spanish speaker** looking to secure quality remot
 
 ## **About Us**
 
-We are **DreamHigh**, a global talent solutions company dedicated to connecting skilled developers with high-quality opportunities across Latin America. Our mission is to build long-term partnerships through transparency, efficiency, and reliable results.
+We are **MageHire**, a global talent solutions company dedicated to connecting skilled developers with high-quality opportunities across Latin America. Our mission is to build long-term partnerships through transparency, efficiency, and reliable results.
 
 ---
 
@@ -94,7 +94,7 @@ This means your **total monthly earnings** can significantly increase based on p
 
 Let’s connect and discuss this opportunity in detail!
 
-**Company**: DreamHigh
+**Company**: MageHire
 **Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
 **Telegram**: @verifdev
 **Schedule a Call**: [https://calendly.com/victor-peed-dreamhigh/30min](https://calendly.com/victor-peed-dreamhigh/30min)
