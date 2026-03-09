@@ -32,9 +32,9 @@ We are **MageHire**, a global talent solutions company dedicated to connecting s
 
 To ensure stability and fairness, we offer a **fixed monthly salary**:
 
-* **Month 1 (Trial / Onboarding): $300**
-* **Month 2 (Trial / Onboarding): $300**
-* **From Month 3 onward: $500 per month**
+* **Month 1 (Trial / Onboarding): $500**
+* **Month 2 (Trial / Onboarding): $500**
+* **From Month 3 onward: $750 per month**
 
 This structure allows time for onboarding, training, and workflow alignment before transitioning into full operational responsibilities.
 
