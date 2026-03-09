@@ -48,9 +48,9 @@ To ensure stability during onboarding and reward performance, we offer a **fixed
 
 #### **Base Salary (Onboarding & Ongoing)**
 
-* **Month 1 (Trial / Onboarding): $300**
-* **Month 2 (Trial / Onboarding): $300**
-* **From Month 3 onward: $500 per month**
+* **Month 1 (Trial / Onboarding): $500**
+* **Month 2 (Trial / Onboarding): $500**
+* **From Month 3 onward: $750 per month**
 
 This structure supports onboarding, training, and alignment with workflows before moving into full responsibilities.
 
